@@ -4,4 +4,4 @@
 2. what a shame 
 3. it's a "bama"
 4. That's a real letdown
-5. burst oone's bubble
+5. burst one's bubble
